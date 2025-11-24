@@ -1,1 +1,1 @@
-deicide (and no amount of evil present at all)
+deicide (and a non-abnormal amount of friendliness!)
