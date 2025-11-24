@@ -1,1 +1,1 @@
-deicide, apples, and a non-abnormal amount of friendliness!
+deicide, apples, and a non-abnormal amount of friendliness
