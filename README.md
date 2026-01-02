@@ -1,1 +1,1 @@
-0% deadly 0% friendly 100% jest-ly
+0% deadly 0% friendly 100% jester harlequin jokester pierrot (:eyes) joker 
