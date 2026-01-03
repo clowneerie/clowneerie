@@ -1,1 +1,7 @@
 0% deadly 0% friendly 100% jester
+
+
+
+i've been told to make myself seem less intimidating and scary
+if you befriend me, i'll make a mii of you in tomodachi life
+good deal, right?
