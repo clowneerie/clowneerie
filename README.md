@@ -19,4 +19,5 @@
 
 i've been told to make myself seem less intimidating <br/>
 so, if you befriend me, i'll make a little you in tomodachi life <br/>
-pretty good deal, right?
+pretty good deal, right? <br/>
+🤡
