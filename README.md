@@ -18,5 +18,5 @@
 <br/>
 <br/>
 <br/>
-screw aura bruh yes anybody can c h with me i mean ANYBODY i'd sit with 7 derapchus (don't factcheck this) <br/>
+screw aura bruh yes anybody can c h with me i mean ANYBODY i'd sit with 7 derapchus (DON'T FACT CHECK THIS) <br/>
 half my friendlist is scared of me helppp helpppp
