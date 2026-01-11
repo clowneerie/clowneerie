@@ -18,5 +18,5 @@
 <br/>
 <br/>
 <br/>
-screw aura bruh anybody can c h with me i'll give you a plushie metaphorically in exchange <br/>
-half my friendlist is scared of me helppp helpppppppppppp 
+screw aura bruh yes anybody can c h with me i mean ANYBODY i'd sit with 7 derapchus (don't factcheck this) <br/>
+half my friendlist is scared of me helppp helpppp
