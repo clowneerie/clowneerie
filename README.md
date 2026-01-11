@@ -18,30 +18,5 @@
 <br/>
 <br/>
 <br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-<br/>
-
-hi. here's my discord: https://discord.gg/8g3Mh4Xa <br/>
-
-use it sparingly
+screw aura bruh anybody can c h with me i'll give you a plushie metaphorically in exchange <br/>
+half my friendlist is scared of me helppp helpppppppppppp 
