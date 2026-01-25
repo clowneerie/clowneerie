@@ -18,7 +18,7 @@
 <br/>
 <br/>
 <br/>
-screw aura bruh yes anybody can c h with me i mean ANYBODY i'd sit with 7 derapchus (don't factcheck pls) <br/>
+i'm clownful c+h with me <br/>
 half my friendlist is scared of me helppp helpppp <br/>
 <br/>
 i try to make clownpierce in 100 styles :o)
