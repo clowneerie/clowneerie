@@ -25,7 +25,7 @@
 <br>
 obligatory int list: <br>
 if you like clowns <br>
-yeah that's it hi ok hi! :clown_wave:
+that's it. hi! :clown_wave:
 <br>
 <br>
 <br>
